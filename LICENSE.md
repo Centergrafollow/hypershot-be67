@@ -1,4 +1,4 @@
-
+rare hypershot Script is the best hypershot Script, featuring auto-collect and instant win. Safe and powerful for all your needs.
 
 
 
